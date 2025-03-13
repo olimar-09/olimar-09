@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @olimar-09
 - 👀 I’m interested in ... video james
-- 🌱 I’m currently learning ... University of Southamption Game Design & Art (GDA)
+- 🌱 I’m currently learning ... University of Southamption Game Design & Art (GDA) Y1
 - 💞️ I’m looking to collaborate on ... video james
 - 📫 How to reach me ... email
 - 😄 Pronouns: ... he/him
